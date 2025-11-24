@@ -1,2 +1,2 @@
 # student
-thrishul poonja from manglore
+thrishul poonja from manglore.
